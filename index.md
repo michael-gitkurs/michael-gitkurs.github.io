@@ -12,3 +12,5 @@ Der erste „Überfall“ auf den Planwagen einer Familie endet daher auch damit
 Bud Spencer said:
 > Ich warne dich, du komischer Heiliger. 
 > Wenn du mich verpetzt, hau ich dir die Rübe ab.
+
+<img src="https://www.openpetition.de/images/petition/bud-spencer-terence-hill-bei-madame-tussauds_1470042537.jpg"/>
